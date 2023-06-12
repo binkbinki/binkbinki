@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @binkbinki
 - 👀 I’m interested in beauty of living
 - 🌱 I’m currently learning catamaran sailing & unity
-- 💞️ I’m looking to collaborate on The Lighthou
+- 💞️ I’m looking forward to collaborate on The Lighthouse
 - 📫 How to reach me @bink.binki / binkbinki
 
 <!---
